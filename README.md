@@ -1,0 +1,1 @@
+# Depremi-nlemek-ve-Deprem-ncesi-veya-sonras-nda-al-nabilecek-nlemler-nelerdir-
